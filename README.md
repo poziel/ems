@@ -1,0 +1,2 @@
+# ems
+EØGAMING MINECRAFT SERVER!
